@@ -15,7 +15,7 @@ PARA QUE:
 para ser usados como insumo
 
 POR QUE:
-por el aspecto simbolico
+por el aspecto simbolic
 
 
 
