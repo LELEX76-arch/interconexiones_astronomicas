@@ -17,5 +17,7 @@ para ser usados como insumo
 POR QUE:
 por el aspecto simbolic
 
+http://www.reduii.org/cii/sites/default/files/field/doc/Apu-Qun-Illa-Tiqsi-Wiraqucha-Pachayachachiq-El-Ordenador-Del-Cosmos.pdf
+
 
 
