@@ -25,3 +25,11 @@ https://drive.google.com/file/d/1t2N6Iv3OdFn6qgucAjqi7pciqi7-VQc1/view?usp=shari
 https://www.apulaya.com/blog/es/por-las-huellas-del-textil-andino
 
 
+PDF de:
+B
+OLETÍN DEL MUSEO CHILENO DE ARTE PRECOLOMBINO
+Vol. 23, No 2, 2018, pp. 121-141, Santiago de Chile ISSN 0716-1530
+CORRELATOS EN LAS CONSTELACIONES SEMIÓTICAS DEL SOL Y DE LA LUNA EN LAS ÁREAS CENTRO Y SUR ANDINAS
+CORRESPONDENCE OF SEMIOTIC SUN AND MOON CONSTELLATIONS IN THE CENTRAL AND SOUTHERN ANDES
+                                                                                RODRIGO MOULIANA, MARÍA CATRILEOB, FELIPE HASLERC
+
