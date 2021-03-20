@@ -39,4 +39,4 @@ RE VISTA DISEÑA 10
 Visualización de datos y astronomia (Manuela Garretón) 
 
 http://www.nuevopoder.cl/cosmovision-andina-simbolismo-y-semiotica-carlos-cantero/
-
+El símbolo es la representación gráfica que, por su presencia visual, síntesis y simplicidad, facilita la comprensión, percepción y memorización rápida. Son representaciones del profundo sentido cósmico, de los ritmos y flujos de vida, expresiones geométricas con plenitud de significados.
