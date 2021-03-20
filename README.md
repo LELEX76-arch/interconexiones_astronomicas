@@ -32,4 +32,11 @@ Vol. 23, No 2, 2018, pp. 121-141, Santiago de Chile ISSN 0716-1530
 CORRELATOS EN LAS CONSTELACIONES SEMIÓTICAS DEL SOL Y DE LA LUNA EN LAS ÁREAS CENTRO Y SUR ANDINAS
 CORRESPONDENCE OF SEMIOTIC SUN AND MOON CONSTELLATIONS IN THE CENTRAL AND SOUTHERN ANDES
                                                                                 RODRIGO MOULIANA, MARÍA CATRILEOB, FELIPE HASLERC
+                                                                                
+                                                                                
+                                                                                
+RE VISTA DISEÑA 10
+Visualización de datos y astronomia (Manuela Garretón) 
+
+http://www.nuevopoder.cl/cosmovision-andina-simbolismo-y-semiotica-carlos-cantero/
 
