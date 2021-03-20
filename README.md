@@ -22,5 +22,6 @@ http://www.reduii.org/cii/sites/default/files/field/doc/Apu-Qun-Illa-Tiqsi-Wiraq
 https://www.territorioancestral.cl/2020/03/23/wenumapu-astronomia-y-cosmologia-mapuche/
 https://drive.google.com/file/d/1t2N6Iv3OdFn6qgucAjqi7pciqi7-VQc1/view?usp=sharing
 
+https://www.apulaya.com/blog/es/por-las-huellas-del-textil-andino
 
 
