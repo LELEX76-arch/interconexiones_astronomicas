@@ -7,7 +7,26 @@ Apuntes de bibliografía y criterios a tomar para la visualización de datos:
 Objetivo de la producción de Ricardo: 
 generar una imagen digital que refleje el aspecto simbólico de las constelaciones
 verbo - objeto - contexto
+A datos en una API o formato amigable donde esten las constelaciones clasicas ( arqueologia astronomica) : si tienen contato con gente que trabaja con arqueologia : datos en dionde esten registradas esas constewlaciones): si existen BBDD de constelaciones y como eran definidas por dif culturas...
 
+
+Preguntar si tabmbien conoen astronomia : arwqueoastronomia o arqueologos q trab astr. o historiadores.***
+Objetivo: obtener info y datos sobre constelaciones para diferentes culturas
+DIBUJAR OTRAS ONSTELACIONES: de TWITTER
+desde hitos 
+ocupando segmentos de estrelllas 
+## referencias de obra: 
+JUlius von Bismark 
+http://juliusvonbismarck.com/bank/index.php/projects/perpetual-storytellin-apparatus/
+
+Mark Napier
+Netflag
+
+Mark Wilson
+
+Manfred Mohr
+
+Si ellos nosrecomienden datos publicos. y-o abiertos de constelaciones y-o estrellas mas cercanas: a que distancia estan las estrelals visibles 
 QUE:
 img cont sinbolico
 
